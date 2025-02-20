@@ -1,7 +1,7 @@
 # Alex W
 
 ### About Me 
-Hi and welcome to my profile :3 
+Hi and welcome to my profile :3 \
 I go by Alex, and my pronouns are they/them. In my free time, I collect physical media such as CDs and vinyl, and play table tennis. I love co-op FPS games, like PAYDAY or Deep Rock Galactic. 
 ___
 
