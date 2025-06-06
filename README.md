@@ -2,7 +2,7 @@
 
 ### About Me 
 Hi and welcome to my profile :3 \
-I go by Alex, and my pronouns are they/she. In my free time, I collect physical media such as CDs and vinyl, and play table tennis. I love co-op FPS games, like PAYDAY or Deep Rock Galactic. 
+I go by Alex, and my pronouns are she/they. In my free time, I collect physical media such as CDs and vinyl, and play table tennis. I love co-op FPS games, like PAYDAY or Deep Rock Galactic. 
 ___
 
 ### Projects
